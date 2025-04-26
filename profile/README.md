@@ -1,5 +1,5 @@
 ### What is Crux Garden?
-> A Digital Mind. A Garden for Thought.
+> A Digital Mind. A Garden for Thought and Memory.
 
 In a world of endless feeds and disconnected information, Crux Garden creates a living ecosystem where ideas maintain their origins, evolve meaningfully, and form authentic connections.
 
