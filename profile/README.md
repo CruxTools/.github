@@ -1,5 +1,5 @@
-### What is Crux Garden?
-> An Idea Machine. A Garden for Thought.
+### What is a Crux Garden?
+> An Idea Machine. A Landscape of Mind. A Garden for Thought.
 
 In a world of endless feeds and disconnected information, Crux Garden creates a living ecosystem where ideas maintain their origins, evolve meaningfully, and form authentic connections.
 
